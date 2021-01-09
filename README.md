@@ -14,6 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-Biomedical Engineering grad student at UBC
+Biomedical engineering grad student at UBC
 
-beep boop
+Ask me about Tolkien!
